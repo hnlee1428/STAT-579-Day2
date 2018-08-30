@@ -13,4 +13,8 @@ About Hana Lee:
 4. What are the three most important tools/strategies you use for organizing your work?
 
 
+Play with keyboard, monitor and mouse.
+
+
 :stuck_out_tongue_closed_eyes:
+
