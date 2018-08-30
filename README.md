@@ -12,4 +12,9 @@ About Hana Lee:
 3. In the past month, what are the three main activities you have been doing at work? 
 4. What are the three most important tools/strategies you use for organizing your work?
 
+
 Play with keyboard, monitor and mouse.
+
+
+:stuck_out_tongue_closed_eyes:
+
